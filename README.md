@@ -1,3 +1,2 @@
 Trisha Gopinath
-7
 
